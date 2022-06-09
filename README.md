@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CheeseIsSpectacular
+- 👀 I’m interested in playing a variaty of games
+- 🌱 I’m currently learning nothing cause school sucks
+- 💞️ I’m looking to collaborate on absolutly nothing
+- 📫 How to reach me you don't
